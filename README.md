@@ -1,0 +1,1 @@
+Soy Lorena, una programadora apasionada por transformar ideas en código. Aunque estoy comenzando mi camino, mi enfoque es crear soluciones innovadoras y eficientes. Con cada proyecto, busco aprender, crecer y aportar valor real.
